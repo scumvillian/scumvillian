@@ -1,13 +1,5 @@
-❝ my heart is full of malice,ㅤmy insides hatred and resentment. 
+⠀⠀⠀⠀⠀i block freely,⠀⠀c+h friendly⠀⠀w2i
 
-⠀⠀⠀⠀⠀today, █████████ wishes for me to die horribly,
+![art cr; cuptoast](https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2514_20260630230348.png)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀and i only have myself to blame. ❞
-
-⠀⠀⠀
-
-⠀⠀⠀⠀i block freely,⠀⠀c+h friendly⠀⠀w2i
-
-![You absolutely have to remember the things you said! You must come back to save me!](https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2374_0000-02-14_20260414212912.png)
-
-⠀⠀⠀⠀⠀⠀⠀⠀used to be @/rochuns
+⠀⠀⠀⠀⠀⠀⠀⠀ ⠀ used to be @/rochuns
