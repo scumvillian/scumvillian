@@ -6,4 +6,4 @@ main interests: *svsss*, *erha*, tgcf, mdzs, **rblx**, **eddsworld**
 
 ⠀⠀⠀⠀⠀⠀⠀⠀ ⠀ used to be @/rochuns
 
-⠀⠀⠀⠀⠀⠀⠀⠀too shy to int so plz int first.
+⠀⠀⠀⠀too shy to approach ppl so plz int first.
