@@ -14,16 +14,18 @@ i block freely,⠀⠀c+h friendly⠀⠀w2i
 <summary style="font-weight:600; color:#4db6ac; cursor:pointer;">⠀ㅤ=^_^=⠀ㅤ</summary>
 
 
-main interests: currently<br>
-**hannibal**, *eddsworld*, *roblox*,<br>
+**main interests**<br>
+hannibal, eddsworld
 
-other interests:<br>
+**other interests**<br>
 south park, svsss, tgcf, erha, mdzs,<br>
 fact attack adventures, sally face,<br>
-charisma house, hypmic, tmirb,<br>
-bad things, tror, waapp, hetalia,<br>
-jason/friday the 13th, jeff the killer,<br> 
+charisma house, hypmic, roblox<br>
+(tmirb,bad things, tror, waapp),<br>
+hetalia, jason/friday the 13th,<br>
+minesweeper, jeff the killer,<br> 
 ++ more im too lazy to list -_-<br>
+just ask me okayyr<br>
 
 hi s.a.d group ily oki
 
