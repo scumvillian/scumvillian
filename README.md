@@ -20,12 +20,9 @@ hannibal, eddsworld
 **other interests**<br>
 south park, svsss, tgcf, erha, mdzs,<br>
 fact attack adventures, sally face,<br>
-charisma house, hypmic, roblox<br>
-(tmirb,bad things, tror, waapp),<br>
-hetalia, jason/friday the 13th,<br>
-minesweeper, jeff the killer,<br> 
-++ more im too lazy to list -_-<br>
-just ask me okayyr<br>
+roblox(tmirb,bad things, tror, waapp),<br>
+hetalia, jeff the killer,<br>
+++ mor stuff m lazy 2 list..<br>
 
 hi s.a.d group ily oki
 
