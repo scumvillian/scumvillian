@@ -20,7 +20,7 @@ hannibal, eddsworld
 **other interests**<br>
 south park, svsss, tgcf, erha, mdzs,<br>
 fact attack adventures, sally face,<br>
-roblox(tmirb,bad things, tror, waapp),<br>
+roblox(tmirb, bad things, tror, waapp),<br>
 hetalia, jeff the killer,<br>
 ++ mor stuff m lazy 2 list..<br>
 
