@@ -3,6 +3,9 @@ i block freely,⠀⠀c+h friendly⠀⠀w2i
 <p align="center">
   <img src="https://file.garden/Z-2b_9WhPAglb5Ie/tord.png" />
 </p>
+<p align="center" dir="auto"> 
+im too shy to approach people so plz int first<br>
+ㅤ<br>
 
 <p align="center" dir="auto"> 
 
