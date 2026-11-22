@@ -18,10 +18,11 @@ im too shy to approach people so plz int first<br>
 
 
 **main interests**<br>
-hannibal, eddsworld
+homestuck
 
 **other interests**<br>
-south park, svsss, tgcf, erha, mdzs,<br>
+svsss, tgcf, erha, mdzs,<br>
+hannibal, eddsworld, south park,<br>
 fact attack adventures, sally face,<br>
 roblox(tmirb, bad things, tror, waapp),<br>
 hetalia, jeff the killer,<br>
