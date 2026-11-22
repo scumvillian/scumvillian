@@ -1,7 +1,7 @@
 <p align="center" dir="auto"> 
 i block freely,⠀⠀c+h friendly⠀⠀w2i
 <p align="center">
-  <img src="https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2726_20261122120725.png" />
+  <img src="https://file.garden/Z-2b_9WhPAglb5Ie/Untitled2727_20261122121021.png" />
 </p>
 <p align="center" dir="auto"> 
 im too shy to approach people so plz int first<br>
